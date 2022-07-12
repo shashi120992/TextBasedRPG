@@ -1,7 +1,7 @@
-# Capton Barbossa(TextBasedRPG...)
+# Capton Osborn(TextBasedRPG...)
 At the dawn of the universe, there was nothing The Big Bang sent. six elemental crystals hurtling across the virgin universe. These Infinity Stones each control an essential aspect of existence. there were 6 infinity stones namely Space, Reality, Power, Soul, Mind, and Time. Which were hidden in resemblance object like Map(Space Stone), Sword(Power Stone), Shield (Soul Stone), Armour (Mind Stone) & Bow(Time Stone) which were guarded by Uatus.
 
-Lord of the Skrulls Murlock half blood demon based on Andromeda had obtained Reality Stone during  2nd  Kree -Skrulls war and got to know about other infinity stones. So he is on the way to hand on all the infinity stones.Our Player, capton Hector Barbossa torch bearer of his clan Black Perl ,  begins his journey in quest of all the gear arms.\nHe must find them all to rescue his clan.
+Lord of the Skrulls Murlock half blood demon based on Andromeda had obtained Reality Stone during  2nd  Kree -Skrulls war and got to know about other infinity stones. So he is on the way to hand on all the infinity stones.Our Player, capton Norman Osborn torch bearer of his clan Black Perl ,  begins his journey in quest of all the gear arms.\nHe must find them all to rescue his clan.
  
 ## Rules of Game
 1. You player has the ability to perform melee as well as ranged attack.
